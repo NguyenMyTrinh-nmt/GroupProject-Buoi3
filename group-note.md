@@ -1,3 +1,4 @@
 # Ghi chú nhóm
-Nguyễn Mỹ Trinh
+Nguyen My Trinh
 NhuNgoc met roi
+Muon di ve 
