@@ -1,1 +1,1 @@
-dòng này do Ngọc và Quyên sửa
+dòng này do ngọc sửa
